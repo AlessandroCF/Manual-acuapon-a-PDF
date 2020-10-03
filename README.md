@@ -1,2 +1,2 @@
-# Manual-acuapon-a-PDF
+# Manual-acuaponía-PDF
 Manual de acuaponía
